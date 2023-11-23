@@ -1,1 +1,0 @@
-# traitym.github.io
